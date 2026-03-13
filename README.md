@@ -27,4 +27,4 @@
 👉 **[Купить Antigravity Patcher на FunPay](https://funpay.com/lots/offer?id=65705998)**
 
 ---
-*Теги для поиска: антигравити в рф без впн, не запускается антигравити, обход Failed to exchange authorization code for token, обход региона для антигравити, antigravity patch, antigravity fix russia.*
+*Теги для поиска: антигравити в рф без впн, не запускается антигравити, обход Failed to exchange authorization code for token, обход региона для антигравити, antigravity patch, antigravity fix russia, FIX: Your Current Account is Not Eligible for Antigravity*
