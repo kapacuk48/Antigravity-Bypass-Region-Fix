@@ -24,7 +24,7 @@
 
 Софт является приватным и распространяется на платной основе. По ссылке ниже вы можете приобрести патчер, после чего сразу получите файл программы и подробную инструкцию.
 
-👉 **[Купить Antigravity Patcher на FunPay](https://funpay.com/lots/offer?id=65705998)**
+👉 **[Купить Antigravity Patcher на GGSell](https://ggsel.net/catalog/product/dostup-k-antigravity-liuboi-akkaunt-liuboi-region-bez-vxoda-102172024)**
 
 ---
 
@@ -55,7 +55,7 @@ The software does not have digital signatures and functions as an embedded patch
 
 This software is private and available for purchase. By following the link below, you can buy the patcher, after which you will immediately receive the software file and detailed instructions.
 
-👉 **[Buy Antigravity Patcher on FunPay](https://funpay.com/lots/offer?id=65705998)**
+👉 **[Buy Antigravity Patcher on GGSell](https://ggsel.net/catalog/product/dostup-k-antigravity-liuboi-akkaunt-liuboi-region-bez-vxoda-102172024)**
 
 ---
 
