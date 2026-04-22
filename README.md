@@ -1,4 +1,5 @@
-# Antigravity Bypass / Patcher | Обход ограничений и региона (Без VPN)
+# Antigravity Bypass / Patcher | Обход ограничений и региона (Без VPN) 
+# FIX🛠️ "code": 400, "message": "User location is not supported for the API use."
 
 Приватный патчер, который снимает ограничения по региону использования с программы **Antigravity**. Это не покупка чужого аккаунта, а полноценное решение для вашего ПК, работающее напрямую с софтом.
 
